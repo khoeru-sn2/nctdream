@@ -1,2 +1,3 @@
 # nctdream
-![PicsArt_01-23-01 37 21](https://user-images.githubusercontent.com/86897399/167265363-b6dca3e1-4620-4e8d-84a8-1903d1b1bc38.jpg)
+![nct](https://user-images.githubusercontent.com/86897399/167266235-e56d4c91-f5a1-4d07-aa3a-7feda6055dea.png)
+
